@@ -1,0 +1,12 @@
+"God Bless the USA Lee Greenwood and the US Air Force Band"
+"It's beginning to look a lot like Christmas -- Burl Ives"
+"My Grown up Christmas List"
+"Noche De Paz (Silent Night in Spanish)"
+"O Come O Come Emmanuel -- Enya"
+"Somewhere over the rainbow / What a wonderful world"
+"That's Christmas to Me -- Pentatonix"
+"Little Drummer Boy"
+"White Christmas -- Taylor Swift"
+"Holly Jolly Christmas"
+"Ek Tu Hi Bharosa"
+
